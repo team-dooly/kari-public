@@ -1,4 +1,4 @@
-# KARI
+# KAMMUNITY
 
 ### 📜 개요
 
